@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **shawkhushi10@gmail.com**
 
-- 📄 Know about my experiences [RESUME](https://drive.google.com/file/d/14HQXi2JYFI1ukjV_EAp8T6SaKT5rqfaW/view?usp=sharing)
+- 📄 Know about my experiences [RESUME](https://drive.google.com/file/d/1kySSqOu72Uv0L9u1D7yxIOb-vfAPJO-a/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
